@@ -40,3 +40,4 @@
 ### https://www.mdapp1.pw/
 
 ### https://www.jdlingyu.com/tuji
+### https://sukebei.nyaa.si/
