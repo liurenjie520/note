@@ -20,3 +20,8 @@
 ### https://www.micmicidol.com/
 ### https://nhentai.net/
 ### https://www.cool18.com/bbs4/index.php
+### https://jp.pornhub.com/
+### https://www.jdlingyu.com/
+### https://www.buxiuse.com/
+### https://hjd2048.com/2048/read.php
+### https://0122.91p30.com/forum.php
