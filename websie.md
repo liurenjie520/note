@@ -1,1 +1,22 @@
 111
+### https://141jav.com
+###  https://141ppv.com
+### https://hjd2048.com/2048/
+### https://www.av01.tv/
+### https://avgle.com
+### https://www.btbtt20.com/
+### https://www.88btbtt.com/
+### http://www.2btjia.com/
+### https://e-hentai.org/
+### https://www.javbus.com/
+### https://hentaimama.io/
+### https://javdb.com/
+### https://www.javlibrary.com/cn/
+### https://nyaa.si/
+### http://onejav.com/
+### http://sexinsex.net/bbs/index.php
+### http://www.t66y.com/
+### https://www.sehuatang.net/forum.php
+### https://www.micmicidol.com/
+### https://nhentai.net/
+### https://www.cool18.com/bbs4/index.php
