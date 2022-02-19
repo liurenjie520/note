@@ -36,3 +36,7 @@
 ### https://netflav.com/
 ### https://javgg.net/
 ### https://fn151.com/ping/  https://fengniao151.vip/
+
+### https://www.mdapp1.pw/
+
+### https://www.jdlingyu.com/tuji
