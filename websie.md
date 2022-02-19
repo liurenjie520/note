@@ -25,3 +25,14 @@
 ### https://www.buxiuse.com/
 ### https://hjd2048.com/2048/read.php
 ### https://0122.91p30.com/forum.php
+### https://jable.tv/
+### https://javfan.one/
+### jav101.com
+### https://missav.com/
+### https://91porny.com/
+### https://www.xvideos.com/
+### https://javtsunami.com/
+### https://hpjav.tv/
+### https://netflav.com/
+### https://javgg.net/
+### https://fn151.com/ping/  https://fengniao151.vip/
